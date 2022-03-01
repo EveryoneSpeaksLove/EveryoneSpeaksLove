@@ -1,0 +1,1 @@
+Hey guys this is Anthony Paris it's been a very long time since we've been in touch I've been locked out of my account but it's been a year and 9 months since I last posted on here I ended up going to rehab and back in Sacramento area after being gone almost to you plus years please if you remember my story if you remember the effects of those around us reach out
